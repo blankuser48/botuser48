@@ -1,5 +1,5 @@
 # Privacy Policy
-## Effective Date: [Insert Date]
+## Effective Date: August 14, 2024
 
 1. Information We Collect
    botuser48 may collect the following information:
